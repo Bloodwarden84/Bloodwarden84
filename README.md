@@ -2,7 +2,7 @@
 -  🍃Im mostly found in the Demon slayer or jjk sections!
 -  🎐I am mostly afk,i just want bckground noise, hense the DNI, but if u do wanna INT plz whisper
 -  🍃Read my damnn strwpge BYF!!
--  🎐How to reach me ...
+-  🎐I am still questioning aroace, idk how i feel tbf
 -  🍃 my prns r gender neutral ONLY!!
   
 
