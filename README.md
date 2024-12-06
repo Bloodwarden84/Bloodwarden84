@@ -1,4 +1,4 @@
-## ⛩️  Haiiyaaa, Call me lu C: ,not bloodwarden84 or luwy, those r my goverment names ! :C
+## ⛩️  Haiiyaaa, Call me lu ,not bloodwarden84 or luwy, those r my goverment names ! :C
 #  🎴  My prns are strictly gender neutral & im aroace !
 #  ⛩️  I'm always in the JJK section, unless i've moved to join my friends !
 #  🎴  Im a minor btw! but i don't have boundaries for ages, you can be 40 and i wont care, i just block whoever is weird.
